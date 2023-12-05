@@ -1,0 +1,17 @@
+# 2 Align People
+
+### 2.1 Think strategically about the business and customers.
+
+A strategy is a high-level plan to achieve one or more goals under conditions of uncertainty, and an uncertain and unexpected environment is a familiar battleground for all of us. To think strategically is to be conscious of the surrounding environment and try to see the connections and needs, implied or explicit, of everyone around us. Everyone has the same 24 hours per day and has their own experiences, expectations, and difficulties. People change, adapt, and see reality in their way, in their own time. We are responsible for our behavior, and every action should be aligned with our mental picture, the environment, and the common good. What we think, say, and do directly impacts the whole picture.
+
+### 2.2 Excite people around your vision.
+
+Different things motivate different people. Some people are more energetic and active. Others have less energy and are more passive. Some of us wait for something to happen. Others blame or rationalize events, trying to justify the undesired outcome. When something changes, the uncertainties become more evident, and the surrounding environment becomes uncomfortable. The bottom line is that it doesn't matter how people are and how they see the world. We should be able to gather people together and get them excited around a shared vision. Our motivation changes other people's behavior, and walking together makes the journey more comfortable and pleasant. Being the CEO of our own life allows us to change our own lives and the lives of others for the better. Be brave and take the opportunity to help them. Go together.
+
+### 2.3 Provide a clear context and direction.
+
+Our mind works like a muscle that adapts to anything. It can learn how to do something correctly and can also learn how to do something incorrectly. Our minds don't know the difference between the two: in this regard, it works just like an unconscious machine, a mighty and dangerous one. However, we do have consciousness, an intrinsic awareness, and we should construct an inner framework that allows us clarity. That clear vision establishes the proper environment to train the mind correctly. Given enough training, we should get a more unobstructed view and communicate our perspective to others more precisely. We must ensure that others can see what we are seeing because their goals and expectations can only be understood if we do. Communicate what you see, what you expect, and your ambitions. Pay close attention to others. If you align your vision with theirs, everyone can go in the same direction.
+
+### 2.4 Bring the right people together to solve problems.
+
+A problem is a situation that needs attention and needs to be dealt with or solved. Problems are what make the world go forward. Without solving problems, our life and existence would halt and, inevitably, collapse. The problem is not the problem itself (no pun intended!). The challenge is to gather the right people with the proper skill set to solve the problem. People can have differing views on the solution even if they have a shared vision. Getting the right people is getting valuable and different perspectives and managing those other points of view to arrive at a joint solution. You should bring people together because, in the end, everyone benefits. You can be that central cohesion piece of the puzzle.

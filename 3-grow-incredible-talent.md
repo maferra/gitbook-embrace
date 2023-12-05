@@ -1,0 +1,21 @@
+# 3 Grow Incredible Talent
+
+### 3.1 Create opportunities for people to learn and grow.
+
+People grow in the proper environment. It's a natural process, and stopping it is impossible. It's more complicated and resource-consuming to stop the growth than to let it happen. The challenge is to create the right environment to learn and grow faster. People want to be part of something, they want to understand, and they are intrinsically good. Being the CEO of our own life comprehends creating opportunities for others. When others thrive, we also succeed. If they break something, help them make things right. If they are afraid or have concerns, go with them. If they are sad, listen and support them. If you are concerned with something, tell them. New opportunities flourish if you establish an active and supportive community around you. Be the one who creates that environment.
+
+### 3.2 Build high-performing teams.
+
+The Olympic Games were a series of athletic competitions among representatives of city-states of ancient Greece. You already have an informal team: everyone around you, family, friends, acquaintances, and strangers. You may even have a formal team, everyone that reports to you. You are the coach of those teams, and you are there to build high-performing athletes. Having and achieving high standards within a diverse team is no easy endeavor. Anyone can easily be a hero in their local setting, but competing in a World-Class environment with a top performance takes work. Building solid teams requires discipline, resilience, and aiming for the common good. They can get better, and you can get stronger, but only if you give yourself a chance to work on it. Bring people together and exercise your muscles every day.
+
+### 3.3 Give clear feedback.
+
+To be underperforming is to underachieve, not to reach standards or expectations. Through persistence and effort, teams grow and attain new development milestones. But there was a point in time when they were underperforming. Every learning and growth journey encompasses the cycle of underperforming and performing until the next challenge. As the coach of yourself and others, you should give clear feedback and help the teams overcome the obstacles. If you wait too much, they and you can't improve. As soon as you see an opportunity for growth, tell everyone about it. Set the expectations for yourself and your team, and give a clear message about it. When you see the team struggling, help them immediately and gather their feedback to adjust your response. Keep the communication channels open and establish the pace.
+
+### 3.4 Seek opportunities to coach and develop your team.
+
+Coaching is a form of development in which an experienced person, called a coach, supports a learner or client in achieving a specific personal or professional goal by providing training and guidance. It's only possible to coach when there's space for improvement, which occurs when an opportunity arises. Pure chance can create opportunities, but also can people, and people can create opportunities much faster than pure luck. Set the environment, create the opportunities, and spotlight your team. Start coaching them by understanding them, taking note of their assumptions and goals, and providing guidance. You don't have all the answers, so walk together, be accountable for their growth, and be the coach of a fantastic team. Be the last to leave the building and the first to start the day.
+
+### 3.5 Celebrate and reward the achievements of everyone.
+
+The achievement of your team is your achievement. Your team achievement is the deliverable that enables you to grow as the CEO of your life. It's only a matter of time until you get the desired results. Some days, you'll feel tired. Others, you'll be immersed in a never-ending fog without a clear picture of where to go. Others feel the same, and occasionally, you'll bump into each other. It's all part of the journey until, perhaps without expecting, you and your team reach the goal. As soon as you get there, celebrate. Stop everything and cheer and reward achievement. All anyone asks for is a chance to work with pride. Everyone who puts energy and time into something desires celebration and recognition, and nothing is more beautiful than a smile and a handshake of "Well done!".

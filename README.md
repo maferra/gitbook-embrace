@@ -1,6 +1,6 @@
 # Embrace
 
-This book is a collection of short essays. It was written in 2019 when I relocated from Lisbon to London with my family. These are the lessons that I took at age 38, my cookbook of recipes to build the proper mindset to overcome challenges. So, I hope you like it, and I wish the reader the best of luck in being successful on the biggest project of them all life itself.
+This book is a collection of short essays. It was written in 2019 when I relocated from Lisbon to London with my family. These are the lessons that I took at age 38, my cookbook of recipes to build the proper mindset to overcome challenges. So, I hope you like it, and I wish the reader the best of luck in being successful on the biggest project of them - all life itself.
 
 ### Chapters
 
@@ -15,10 +15,7 @@ This book is a collection of short essays. It was written in 2019 when I relocat
 [5-first-principles-innovation.md](5-first-principles-innovation.md "mention")
 
 
-[https://buy.stripe.com/7sI00LetbcM6h1u144](https://buy.stripe.com/7sI00LetbcM6h1u144)
 
-<div align="left">
+[![Buy Me a Coffee Support Link](https://github.com/maferra/gitbook-embrace/raw/main/.gitbook/assets/bmc-button.svg)](https://buy.stripe.com/7sI00LetbcM6h1u144)
 
-<figure><img src=".gitbook/assets/bmc-button.svg" alt="" width="273"><figcaption><p>Suppor my work -> Buy me a coffee !</p></figcaption></figure>
-
-</div>
+Please support my work! -> [https://buy.stripe.com/7sI00LetbcM6h1u144](https://buy.stripe.com/7sI00LetbcM6h1u144)

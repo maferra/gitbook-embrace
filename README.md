@@ -16,4 +16,10 @@ This book is a collection of short essays. It was written in 2019 when I relocat
 
 
 
-Support my work -> [Buy me a coffee](https://buy.stripe.com/7sI00LetbcM6h1u144) !
+[https://buy.stripe.com/7sI00LetbcM6h1u144](https://buy.stripe.com/7sI00LetbcM6h1u144)
+
+<div align="left">
+
+<figure><img src=".gitbook/assets/bmc-button.svg" alt="" width="273"><figcaption><p>Suppor my work -> Buy me a coffee !</p></figcaption></figure>
+
+</div>

@@ -2,7 +2,7 @@
 
 ### 1.1 Leave your ego at the door.
 
-External factors like other people or circumstances don't cause problems. Problems stem from our attitudes, selfishness, and self-absorption. You are correct if, after reading the last sentence, you think it's an oversimplification and that some problems originate externally. Nonetheless, it is pretentious to think that we have control over external events, even if we sometimes feel we have control over them. On top of that, people tend to have loss aversion – given the same conditions, there is a natural tendency to prefer avoiding losses to acquiring equivalent gains. So, every day, and especially when things get rough and unconformable, we must embrace humility, lead authentically, and have confidence in our abilities. Create yourself and be yourself.
+External factors like other people or circumstances don't cause problems. Problems stem from our attitudes, selfishness, and self-absorption. You are correct if, after reading the last sentence, you think it's an oversimplification and that some problems originate externally. Nonetheless, it is pretentious to think that we have control over external events, even if we sometimes feel we have control over them. On top of that, people tend to have loss aversion - given the same conditions, there is a natural tendency to prefer avoiding losses to acquiring equivalent gains. So, every day, and especially when things get rough and unconformable, we must embrace humility, lead authentically, and have confidence in our abilities. Create yourself and be yourself.
 
 ### 1.2 Speak up and make the tough calls.
 

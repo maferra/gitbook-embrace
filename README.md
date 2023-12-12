@@ -2,6 +2,8 @@
 
 This book is a collection of short essays. It was written in 2019 when I relocated from Lisbon to London with my family. These are the lessons that I took at age 38, my cookbook of recipes to build the proper mindset to overcome challenges. So, I hope you like it, and I wish the reader the best of luck in being successful on the biggest project of them - all life itself.
 
+> ! Please star this [repository on GitHub](https://github.com/maferra/gitbook-embrace) if you end up using this project. If it has improved your life, consider donating to my mission using the [Buy Me a Coffee](https://buy.stripe.com/7sI00LetbcM6h1u144) button. It will help me to continue supporting this product !
+
 ### Chapters
 
 [1-lead-authentically.md](1-lead-authentically.md "mention")
